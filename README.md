@@ -13,6 +13,6 @@ software for sell 100 usd payment with crypto what you get
 
 2. bin list < this very important
 
-conact 
+contact me
 
 telegram : @alpacinoka
